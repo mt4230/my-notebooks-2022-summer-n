@@ -1,1 +1,1 @@
-# my-notebooks-2022-summer-n
+# my-notebooks-2022-summer-nyu
